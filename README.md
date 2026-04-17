@@ -8,4 +8,4 @@
 
 ### 📫 Contact me
 - **Telegram:** [@Iridean](https://t.me/Iridean)
-- **Email:**[pancakelegobrick@gmail.com](mailto:pancakelegobrick@gmail.com)
+- **Email:** [pancakelegobrick@gmail.com](mailto:pancakelegobrick@gmail.com)
